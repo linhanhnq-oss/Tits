@@ -1,2 +1,0 @@
-# Tits
-Vương quốc Chocolate
